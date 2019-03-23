@@ -1,4 +1,4 @@
-# Getting started...
+# First steps
 
 Our Father, who art in heaven, hallowed be Thy name.
 Thy kingdom come, Thy will be done, on earth as it is in heaven.
