@@ -21,6 +21,8 @@ What is its true nature?
 
 How do we best interact with it, and it with us?
 
+Should we trust coincidences? When should we?  When shouldn't we?
+
 Do we want to unplug? We don't have to.  The choice is ours. Truth or chaos. Let's discover reality together.
 
 We need each other.
